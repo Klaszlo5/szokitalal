@@ -1,5 +1,5 @@
 # szokitalal
-Kadar Laslzo 
+Kádár László: Klaszlo5
 <br>
 Evinger Bónó: evingerbono 
 <br>
